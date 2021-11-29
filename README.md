@@ -4,7 +4,7 @@
 - 💞️ I’m looking for a guide to guide me properly into the front-end tech industry.
 - 📫 How to reach me
 - muhammadking09@gmail.com
-- @AdanAyaz1 on Twitter
-- @adan_ayaz on Instagram.
+- https://twitter.com/AdanAyaz1
+- https://instagram.com/adan_ayaz/
 - Peace Out!!
 
